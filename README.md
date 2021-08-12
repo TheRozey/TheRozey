@@ -10,4 +10,3 @@ Game Bot Link:
 - 📫 How to reach me: Add me on discord! TheRozey#1999
 - 😄 Pronouns: TheRozey
 - ⚡ Fun fact: I am cool
--->
