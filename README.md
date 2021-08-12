@@ -5,6 +5,7 @@ Game Bot Link:
 ---> https://dsc.gg/gamebot
 
 - 🔭 I’m currently working on Game Bot
+- 🎮 Other intrests: Gaming, Going Outside 😲
 - 🌱 I’m currently learning Javascript
 - 📫 How to reach me: Add me on discord! TheRozey#1999
 - 😄 Pronouns: TheRozey
